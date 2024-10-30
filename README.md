@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @findBianca
 - 👀 I’m interested in ...chocolate
-- 🌱 I’m currently learning ...PhD
+- 🌱 I’m currently learning ...to PhD
 - 💞️ I’m looking to collaborate on ...science
 - 📫 How to reach me ...
 - ⚡ Fun fact: ...
